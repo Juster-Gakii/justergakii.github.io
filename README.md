@@ -1,1 +1,0 @@
-# justergakii.github.io
